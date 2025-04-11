@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @minapplez
+- 👀 I’m interested in informatic and mathematics
+- 🌱 I’m currently learning html and css
+- 💞️ I’m looking to collaborate on school project
+- 📫 How to reach me on discord: minapplez
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: Bäume sind grün und der Himmel ist blau (zumindest bei gutem Wetter)
